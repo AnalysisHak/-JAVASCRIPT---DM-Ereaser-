@@ -1,0 +1,2 @@
+# -JAVASCRIPT---DM-Ereaser-
+ DISCORD CONSOLE
